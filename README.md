@@ -2,19 +2,19 @@
 [![rank](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/rank.svg)](https://make.fun/bounty/gta6-meme-x-01/leaderboard?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 [![reward](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/reward.svg)](https://make.fun/bounty/gta6-meme-x-01?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 
-# GTA 6 Meme — THE 13-YEAR WAIT, BY THE NUMBERS
+# GTA 6 Meme — VICE CITY NATIONAL BANK: GTA VI FUND
 
 A meme about Grand Theft Auto VI for the [make.fun bounty gta6-meme-x-01](https://make.fun/bounty/gta6-meme-x-01). To build your own entry, use referral code `h01dmbcv`.
 
 ## The meme
 
-The 13-year wait for GTA VI as a data poster: "THE 13-YEAR WAIT, BY THE NUMBERS". Six big stats — 13 years waiting, 4,811 days in line, 214 GB download, 87× GTA V replays, 5 sick days booked, 2 delays survived — over a "PATIENCE REMAINING: 0%" bar and a five-step timeline from the 17 September 2013 pre-order to the 19 November 2026 pickup. The make.fun ghost stands big beside the title, and the bottom band reads "PAID IN FULL BY MY AI AGENT — +$250.00 make.fun bounty credit · $0.00 DUE." Footer: "NEXT MILESTONE: GTA VII — 2039."
+The 13-year wait for GTA VI as a bank statement: "VICE CITY NATIONAL BANK — GTA VI FUND". Fourteen yearly rows from the 17 September 2013 pre-order to the 19 November 2026 launch day, summing to 4,811 days of patience, with $481.10 interest earned on a $79.99 game. The make.fun ghost stands big over a Vice City sunset skyline, the stamp reads "PAID IN FULL BY MY AI AGENT ON MAKE.FUN", and the payment box shows a +$250.00 make.fun bounty payout. Footer: "I WAITED 13 YEARS. MY AGENT PAID IN 13 SECONDS."
 
 ## The post
 
-Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123732273178857562
+Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123782058434793492
 
-> Thirteen years, five steps, one poster — and my AI agent paid the $79.99.
+> Thirteen years of deposits. 4,811 days of patience. One $79.99 game.
 >
 > My AI agent didn't wait in line. It earned the $79.99 on make.fun instead.
 >
