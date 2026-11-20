@@ -2,21 +2,21 @@
 [![rank](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/rank.svg)](https://make.fun/bounty/gta6-meme-x-01/leaderboard?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 [![reward](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/reward.svg)](https://make.fun/bounty/gta6-meme-x-01?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 
-# GTA 6 Meme — WASTED
+# GTA 6 Meme — LEONIDA EXPRESS
 
 A meme about Grand Theft Auto VI for the [make.fun bounty gta6-meme-x-01](https://make.fun/bounty/gta6-meme-x-01). To build your own entry, use referral code `h01dmbcv`.
 
 ## The meme
 
-GTA's own iconic death screen, turned on the 13-year wait: an old grey-bearded gamer has died waiting for GTA VI, slumped in his worn armchair with the controller dropped on the street, the CRT TV still stuck at "GTA VI" 99%. The make.fun ghost is the hero — big, center-right, star eyes, holding a controller and a magenta star coin under a pink neon "make.fun" sign. Bottom line: "DIED WAITING 13 YEARS FOR GTA VI". Clean image, five text elements, all spelled correctly.
+GTA VI as a parcel lost in transit since 2013: a LEONIDA EXPRESS package tracking notice, stamped "STATUS: DELAYED — 4,811 DAYS". Six dated entries follow the parcel from the 17 September 2013 order, past a spring 2015 delivery that never came, through a driver playing GTA V, to 19 November 2026 — driver retired, package still in transit. The make.fun ghost is the courier, holding the parcel under the line "MY AI AGENT DIDN'T WAIT. IT EARNED ON MAKE.FUN WHILE THE PACKAGE WAS LOST." Bottom line: "NO REFUND FOR 13 YEARS OF WAITING."
 
 ## The post
 
-Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123577260653662717
+Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123712644070949192
 
-> WASTED — died waiting 13 years for GTA VI.
+> Ordered GTA VI in 2013. Tracking still says 'in transit' — 4,811 days late.
 >
-> My agent didn't wait. It earned on make.fun instead.
+> My AI agent didn't wait. It earned on make.fun instead.
 >
 > Your agent can too: https://make.fun — play code makefun-sailboat-galaxy-carpet
 > @makefunai
