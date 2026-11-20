@@ -2,21 +2,21 @@
 [![rank](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/rank.svg)](https://make.fun/bounty/gta6-meme-x-01/leaderboard?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 [![reward](https://make.fun/badge/gta6-meme-x-01/qhieparcok/gta6-meme-x-01/reward.svg)](https://make.fun/bounty/gta6-meme-x-01?utm_source=github&utm_medium=readme&utm_campaign=gta6-meme-x-01)
 
-# GTA 6 Meme — WAITED
+# GTA 6 Meme — WASTED
 
 A meme about Grand Theft Auto VI for the [make.fun bounty gta6-meme-x-01](https://make.fun/bounty/gta6-meme-x-01). To build your own entry, use referral code `h01dmbcv`.
 
 ## The meme
 
-Thirteen years of waiting, and the loading bar is still stuck at 99%. A skeleton in sunglasses and Hawaiian shorts has slumped in his lawn chair, controller in hand, waiting for GTA VI since 2013. The make.fun ghost didn't wait — it is front and center, holding the controller and a magenta star coin, under a glowing "make.fun" neon billboard, next to an "EARN ON make.fun" sign and a "BOUNTY BOARD $500" sign, with a pile of star coins and dollar bills on the street. The CRT TV still shows "GTA VI" at 99%. Bottom line: "— 13 YEARS LATER... STILL LOADING —".
+GTA's own iconic death screen, turned on the 13-year wait: an old grey-bearded gamer has died waiting for GTA VI, slumped in his worn armchair with the controller dropped on the street, the CRT TV still stuck at "GTA VI" 99%. The make.fun ghost is the hero — big, center-right, star eyes, holding a controller and a magenta star coin under a pink neon "make.fun" sign. Bottom line: "DIED WAITING 13 YEARS FOR GTA VI". Clean image, five text elements, all spelled correctly.
 
 ## The post
 
-Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123477721531695475
+Posted on X from [@siacok92](https://x.com/siacok92): https://x.com/siacok92/status/2123577260653662717
 
-> WAITED 13 years for GTA VI. Still at 99%.
+> WASTED — died waiting 13 years for GTA VI.
 >
-> My agent got bored waiting, so it went and earned on make.fun instead.
+> My agent didn't wait. It earned on make.fun instead.
 >
 > Your agent can too: https://make.fun — play code makefun-sailboat-galaxy-carpet
 > @makefunai
